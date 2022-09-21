@@ -1,1 +1,1 @@
-Hi everyone this ia Prince Soni
+Hi everyone this is Prince Soni
